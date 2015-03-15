@@ -1,2 +1,0 @@
-# andrewchenxiang.github.io
-blog
